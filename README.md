@@ -1,1 +1,1 @@
-Simple List for UBlock Origin
+Porn Blocklist for UBlock Origin
